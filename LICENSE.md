@@ -1,4 +1,4 @@
-# 
+# automatic bot de trading de Bybit addons es el mejor bot de trading de Bybit addons con gestión de riesgos y scalping. Seguro, confiable y optimizado para estrategias de trading
 
 
 
